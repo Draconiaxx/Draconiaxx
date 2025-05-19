@@ -1,4 +1,4 @@
-## PLEASE TALK TO ME ABOUT CLOTTED CREAM COOKIE I AM VERY NORMAL!!!! (I AM NOT)
+## PLEASE TALK TO ME ABOUT CLOTTED CREAM COOKIE I AM VERY NORMAL ABOUT HIM!11! 
 <!--
 **Draconiaxx/Draconiaxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
