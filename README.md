@@ -1,4 +1,4 @@
-## Unattended children WILL be given to the goblin king.
+## PLEASE TALK TO ME ABOUT CLOTTED CREAM COOKIE I AM VERY NORMAL!!!! (I AM NOT)
 <!--
 **Draconiaxx/Draconiaxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
